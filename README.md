@@ -1,4 +1,4 @@
-# Dr-Licens
+# DR-Licens
 
 Også træt af DR Licens ringer og forstyrrer?  
 Så tilføjer du bare følgende kontakt til din telefonbog og undlader at tage telefonen.
